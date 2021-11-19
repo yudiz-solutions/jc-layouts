@@ -1,3 +1,3 @@
-For more information you can check out blog.
+For more information you can check out blog.  
 ---BLOG LINK---
 
